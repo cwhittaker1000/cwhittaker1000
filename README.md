@@ -8,5 +8,5 @@
 
 📫 **How to reach me: charles.whittaker16@imperial.ac.uk**
 
-🙋‍♂️ Pronouns: He/Him
+🙋‍♂️ **Pronouns:** He/Him
 <!--
